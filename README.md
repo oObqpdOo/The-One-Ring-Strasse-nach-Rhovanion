@@ -1,2 +1,2 @@
-# The-One-Ring---Stra-e-nach-Rhovanion
+# The-One-Ring---Strasse-nach-Rhovanion
 Setting für meine Pen and Paper Kampagne
